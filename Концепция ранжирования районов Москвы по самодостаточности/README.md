@@ -2,7 +2,7 @@
 
 - [Проект]()
 - [Презентация]()
-- [Скринкаст]()
+- [Скринкаст](https://1drv.ms/v/s!AlvGRujp8j1piq4oqpZcvteiUf4EfA?e=ZuUOAG)
 
 ## Цели и задачи
 
